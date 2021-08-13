@@ -1,6 +1,2 @@
-package main
-
-import "fmt" 
-
-func main() {
+Let's give this a go
 
