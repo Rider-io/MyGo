@@ -12,5 +12,4 @@ M440I
 M440I
 M440I!!
 
-
-I will be driving a M440I!!!!!!!!
+M440I Getting Ordered Soon
