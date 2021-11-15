@@ -6,4 +6,4 @@ M440I
 11.11.21
 12/11/21 - Friday 
 
-15/11/21 - Monday- 8 CV sends so far! Feeling good. 
+15/11/21 - Monday- 8 CV sends so far! Feeling good. Let's hit 15 CV sends this week :)
