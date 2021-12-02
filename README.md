@@ -21,3 +21,5 @@ M440I Countdown: 4 Months 9 Day/s
 
 29/11/21 - Monday X
 30/11/21- Tuesday X
+1/12/21 - Wednesday X
+2/12/21 - Thursday
