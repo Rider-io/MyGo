@@ -27,5 +27,6 @@ First Song - Sixteen Youngs Teflon
 3/12/21 - Friday 
 
 06/12/21- Monday 
-07/12/21- Tuesday - Deal ✔🎉
-08/12/21
+07/12/21- Tuesday - Deal 🎉
+08/12/21 - Wednesday - Deal 🎉
+09/12/21 -
