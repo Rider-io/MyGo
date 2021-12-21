@@ -1,6 +1,3 @@
-M440I Countdown: 3 months 27 days 
-First Song - Sixteen Youngs Teflon
-
 
 08/11/21 - Monday
 09/11/21- Tuesday
@@ -27,9 +24,6 @@ First Song - Sixteen Youngs Teflon
 3/12/21 - Friday 
 
 06/12/21- Monday 
-07/12/21- Tuesday - Deal 🎉
-08/12/21 - Wednesday - Deal 🎉
+07/12/21- Tuesday 
 09/12/21 -
 
-
-yboh8pveewf
