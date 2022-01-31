@@ -1,7 +1,9 @@
-It's going to be a good day! 
+It's going to be a good day!! 
 
 COMPANIES I WILL WORK WITH:
 
 OTTO 
 BOLT
 GLOVO
+PANASONIC
+ZALANDO 
