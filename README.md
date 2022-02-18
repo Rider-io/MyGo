@@ -1,6 +1,6 @@
 It's going to be a good day!!!
+It will be a good day today!
 
-COMPANIES I WILL WORK WITH:
 
 
 
